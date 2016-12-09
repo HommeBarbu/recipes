@@ -4,15 +4,15 @@ Makes about 36 biscotti (3/4-inch-wide cookies)
 
 ## Ingredients
 
-- 3 cups unsalted whole almonds (281+282g) 575
-- 1 cup granulated sugar (200)g
-- 1 cup light brown sugar 200
-- 1/2 teaspoon ground cinnamon 2.5
+- 575g nsalted whole almonds (todo should be 18oz in weight.)
+- 200g granulated sugar
+- 200g light brown sugar
+- 1 teaspoon ground cinnamon
 - 2 teaspoons baking powder 4.5
-- 2 1/2 cups all-purpose flour 400g
+- 400g all-purpose flour 400g
 - 4 large eggs, plus 1 egg, lightly beaten, for brushing tops of loaves
-- 1 teaspoon pure vanilla extract 6g
-- ~Zest of 1 large orange (1 to 2 teaspoons)~
+- 1 teaspoon pure vanilla extract
+- 1/2 teaspoon almond extract
 
 ### Roasted Almonds
 
@@ -43,8 +43,8 @@ Brush loaves all over with lightly beaten egg.
 
 ### Bake
 
-Bake for 40 minutes, rotating pans halfway through, or until the tops of the loaves are shiny and deep golden.
-Cool on a rack for about 20 minutes before slicing.
+Bake for 36 minutes, rotating pans halfway through, or until the tops of the loaves are shiny and deep golden.
+Cool on a rack for about 18 minutes before slicing.
 
 ### Cut
 
