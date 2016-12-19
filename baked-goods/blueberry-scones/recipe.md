@@ -2,18 +2,18 @@
 
 ## Ingredients
 
-241g King Arthur Unbleached All-Purpose Flour
-1/2 teaspoon salt
-50g granulated sugar
-12g baking powder
-85g cold butter, cut into pieces
-142g fresh blueberries
-2 large eggs, beaten
-57g vanilla yogurt
-1 teaspoon vanilla extract
-11g grated lemon rind (zest), or 1/4 teaspoon lemon oil
-1/2 teaspoon almond extract
-36g sparkling white sugar, for sprinkling on top
+- 241g King Arthur Unbleached All-Purpose Flour
+- 1/2 teaspoon salt
+- 50g granulated sugar
+- 12g baking powder
+- 85g cold butter, cut into pieces
+- 142g fresh blueberries
+- 2 large eggs, beaten
+- 57g vanilla yogurt
+- 1 teaspoon vanilla extract
+- 11g grated lemon rind (zest), or 1/4 teaspoon lemon oil
+- 1/2 teaspoon almond extract
+- 36g sparkling white sugar, for sprinkling on top
 
 ## Instructions
 
