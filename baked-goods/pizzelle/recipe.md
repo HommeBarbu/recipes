@@ -4,13 +4,13 @@ Gram’s recipe (Marsilia Rampa)
 
 ## Ingredients
 
-4 - cups of Flour
-1 – cup of Sugar
-4 – tsp Baking Powder
-1 – cup Butter (2 sticks) melt and cool
-6 – Eggs
-¼ - cup Vanilla
-1 – 1 fluid oz. bottle of McCormick Pure Anise Extract
+- 4 cups of flour
+- 4 tsp baking powder
+- 1 cup of sugar
+- 1 cup butter, melted and cooled
+- 6 eggs
+- 2 oz vanilla extract
+- 1 oz anise extract
 
 ## Directions
 
